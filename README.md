@@ -1,1 +1,1 @@
-# goodffinds.fyi
+# goodfinds.fyi
